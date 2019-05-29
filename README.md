@@ -1,0 +1,2 @@
+# newrepositori
+Tolong bantu saya 
